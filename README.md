@@ -1,1 +1,0 @@
-# Club Innovation Emsi Marrakesh
